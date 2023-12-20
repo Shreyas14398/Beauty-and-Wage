@@ -1,1 +1,1 @@
-# Beauty-and-Wage
+# Wage vs Beauty
